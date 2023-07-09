@@ -1,4 +1,4 @@
 👋 Hi, I’m Sarawut Bunmee
 
 - Facebook : O'Wut
-- Email: owutnr@gmail.com
+- Gmail: owutnr@gmail.com
