@@ -2,4 +2,4 @@
 
 - Facebook : O'Wut
 - Gmail: owutnr@gmail.com
-- Email: kthtnr@outlook.com
+- Email: sarawut_bm@outlook.com
